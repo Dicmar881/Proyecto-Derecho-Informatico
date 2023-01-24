@@ -9,7 +9,7 @@
 
 - 📫 Como me puedes conocer **dicmar881@gmail.com**
 
-- 📄 Conoce sobre mi experiencia [https://drive.google.com/file/d/1jzDz7LiOEBjAEiLRwfHdidORNz7WGbkh/view?usp=sharing](https://drive.google.com/file/d/1jzDz7LiOEBjAEiLRwfHdidORNz7WGbkh/view?usp=sharing)
+- 📄 Conoce sobre mi experiencia https://drive.google.com/file/d/19zJqAEBIzJ-BrIE7VApJnal_IF4RWT_t/view?usp=sharing
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
